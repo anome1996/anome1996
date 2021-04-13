@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding 
 - 🌱 I’m currently learning ... linux,python
 - 💞️ I’m looking to collaborate on ... coding,crypto
-- 📫 How to reach me ... tjaay____     also snapchat tj.foe
+- 📫 How to reach me ...  twitter~tjaay____   snapchat~tj.foe
 
 <!---
 anome1996/anome1996 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
